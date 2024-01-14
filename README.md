@@ -1,5 +1,5 @@
 
-### Hello
+### Hello, enjoy reading!
 
 
 ### If you wish to connect with me you can message me discord or github
